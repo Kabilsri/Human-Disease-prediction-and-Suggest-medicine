@@ -1,4 +1,4 @@
-https://images.app.goo.gl/6VJAJEiNxbx7FxQY9
+1110RRNewRiskEquations_SC.jpg
 ### Human-Disease-prediction-and-Suggest-medicine
 
 
