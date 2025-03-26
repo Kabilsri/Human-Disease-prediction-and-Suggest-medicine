@@ -1,4 +1,4 @@
-1110RRNewRiskEquations_SC.jpg
+
 ### Human-Disease-prediction-and-Suggest-medicine
 
 
